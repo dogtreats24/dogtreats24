@@ -1,4 +1,4 @@
-　　　 `me` ; gonna kill myself ya, just like lando!! wait.. I am lando. (^_^) 
+　　　 `me` ; wheres the ten story tall buildings at man.. 
     　　
 
-　　`ln4` : woah carlito loves me?!1!?
+　　`ln4` : hi carlito i wont bcuz i love you too ok.. 
